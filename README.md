@@ -1,1 +1,1 @@
-Hi,there, I'm panxw, I blog at https://www.panxw.xyz
+Hi, githuber, I'm panxw, and my blog https://www.panxw.xyz
